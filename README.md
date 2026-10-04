@@ -1,1 +1,0 @@
-# Gereltuya.V.bolomj.tootsoh.io
